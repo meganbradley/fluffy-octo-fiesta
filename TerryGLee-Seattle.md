@@ -1,7 +1,7 @@
 # Seattle
 
 ## Places to Go
-- Space Needle
+- Pike Place Market
 - [Chihuly Garden & Glass](http://www.chihulygardenandglass.com/)
 
 ## Food to Eat
