@@ -1,2 +1,3 @@
-# Ricks fluffy-octo-fiesta
-Some great stuff
+# Ricks Byham-Seattle file
+
+## Places to go
