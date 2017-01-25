@@ -5,7 +5,7 @@
 - Creek Street
 - Totem Bight State Park
 
-## Food to each
+## Food to eat
 
 - Grilled Salmon
 - Smoked salmon
